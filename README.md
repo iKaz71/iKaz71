@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @iKaz71
 - 👀 I’m interested in making a mark in the space world
-- 🌱 I am learning too many things at the same time, I love being polyphasic
+- 🌱 I am learning too many things at the same time, I love being multifaceted
 - 💞️ I’m looking to collaborate with whoever needs me
 - 📫 How to reach me? it's easy if you're interested
 
